@@ -1,4 +1,4 @@
-# ZbotV2
+# BACA DULU DECK :D
 
 Bot By Zeeone X GarVinCG
 Panel Railway
